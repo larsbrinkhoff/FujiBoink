@@ -1,0 +1,1 @@
+![FujiBoink](fujiboink.gif)
